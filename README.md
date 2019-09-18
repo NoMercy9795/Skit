@@ -3,7 +3,7 @@
 
 Rama and Laxmana walking together enter the scene.
 **Ram** - _radhe  radhe !!!_
-**Laxman** - Bhaiya radha nhi sita sita,
+**Laxman** - Bhaiya radha nhi sita sita
 
 
 
