@@ -16,7 +16,7 @@
 
 **Dashratha**- *han han bolo kya chaiye waise bhi amazon pe big billion day chal raha hai, Iphone x order kar dun*
 
-**Kaikayi** - *Apne pehle lugayi ke bete ram ko jungle bhej do aur hamre bete ko raja banao!*
+**Kaikayi** - *Apne pehle lugayi ke bete ram ko jungle bhej aur hamre bete ko raja bana!*
 
 Background song - "tadap tadap ke iss dil se aah nikalti rahi"
 
