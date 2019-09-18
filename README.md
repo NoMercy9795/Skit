@@ -99,6 +99,125 @@ Ram and Laxman walking together enter the scene
 
 ### Getting down from taxi...
 
+**Garud** - *Tum Rama ho? Kya tum apni biwi ko dhoondh rahe ho?*
+
+**Ram** - *Haan magar aap....*
+
+**Garud** - *Tera baap!! jitna bolun bs utna sun.*
+
+**Ram** - *Sorry chacha!!!*
+
+**Garud** - *Main us plane ka pilot hoon! Ab kambakht kalyug mein pet bharne ke liye mujhe ye bhi karna pada...
+Magar main to boodha garud hoon sahab! Kambakht Auto Pilot ka zamaana hai...Ravana ne mujhe dhakel diya aur plane ko le gaya!*
+
+**Ram** - *Magar woh le kahaan gaya hai?*
+
+**Garuda** - *Sri Lanka....waheen par Ravana ka rajya hai.
+Aapki biwi ne aapke liye ye goggles bhi chhoda hai...*
+
+Ram sees it 'fastrack...haan ye bhi Seeta ke special goggles hain.
+
+**Ram** - *I mean...chaccha.....ye Ravana rehte kahaan hain?*
+
+**Garud** - *Don't worry, uska visiting card mere paas hai....*
+
+### gives visiting card...
+
+**Laxman** - *Bhaiyya, humein jald se jald nikalna chahiye....*
+
+**Ram** - *Magar inka kya karein?*
+
+**Garud** - *Meri chinta mat karo...main apni girlfriend ko phone kar doonga.*
+
+**Ram** - *Chaccha, tumhari girlfriend kahaan rehti hai?*
+
+**Garud** - *Woh Lake Pulicat mein chutti mana rahi hai*
+
+**Laxman** - *Oh...phir to bahut der ho jayegi....hum Menaka Gandhi ko phone kar dete hain! Zyada jaldi aa jayengi*
+
+**Ram** - *Laxmana....tum woh sab intezam karo...main Taxi Driver se wahaan tak jaane ka kiraya baat kar leta hoon.*
+
+### They are driving in full speed...
+
+**Ram** - *Arre....ye kya.....bandar jaisa ek aadmi chala aa raha hai!*
+
+**Laxman** - *Gaur se dekho bhaiya, woh Andrew Symonds hai. Taxi wale bhaiyya! RUKO!*
+
+### They get down.
+
+**Ram** - *Hi! Tumhara naam kya hai?*
+
+**Hanuman** - *Mera naam **Pandit Gangadhar Vidhyadhar Mayadhar Omkarnath Shastri** hai. Maine bahut paap kiya hain...Indian Cricket Team ke khilaaf. God ne mujhe punish kiya ke jab tak main aapki seva naa karoon.....tab tak main century nahin bana paaoonga.*
+
+Ram, main aapki madad karoonga.
+
+**Laxman** - *Good....ab Lanka tak udo aur vaapas aao.*
+
+**Hanuman** - *Sorry....depression mein mujhe bulimia ho gaya....aur....main bahut khana kha kar mota ho gaya. Doctor ne mujhe udne se mana kiya hai.*
+
+**Laxman** - *Tumhari sehat ke liye?*
+
+**Hanuman** - *Nahi, mere co-passengers ki sehat ke liye.*
+
+Main aapke saath Taxi mein chalunga. Taxi ka bhaada main doonga.
+
+### They all get in the taxi and move on! The reach the port of Kanyakumari.
+
+**Ram** - *Laxman.....ab hum paar kaise karen?*
+
+**Laxman** - *Thoda intezaar karlo, har baat mei laxman laxman, kuch kaam khud bhi kar liya karo thakur *
+
+**Ram** - *Arre....woh kya? Ek Ship aa raha hai?*
+
+**Laxman** - *Woh hamare liye hi aa rahen hain bhaiya, maine sri lanka mei malinga se baat kar liya h. Hum ussi mein Sri Lanka tak jaayenge.*
+
+**Ram** - *Par ticket?*
+
+**Laxman** - *Chinta mat karo bhaiya, maine aate hue, makemytrip.com se saara intezaam kar diye hai.*
+
+**Ram** - *Wah mere bhai Laxman! Main tujhe aashirvaad deta hoon, is baar tera US ka Visa zaroor pass ho jayega!*
+
+**Laxman** - *Thank you bhaiya.*
+
+**Ram** - *Ye kya!! Ship mein to saare bandar bhare hain!*
+
+**Laxman** - *Arre, phir gaur se dekho bhaiya....Indian team Sri Lanka ke daure ke liye nikal rahi hai. Usne bhi aapse kripa paane ke liye aapki seva mein utar aaye.*
+
+### The Judgement Day!!!
+
+**Ram** - Ravana, Ravana, Ravana! Courage hai toh bahar aa!
+
+**Ravana** - Hahahahahaha.... Dekh script thodi change hai. Let’s play Online Carrom. Jo jeeta wahi sikandar. What say?
+
+**Ram (After consulting everyone)** - *Chal done. But no cheating!*
+
+ The battle of game finally started. They both end up by lossing all there coins.
+
+ The war comes to a end.
+
+**Ram** - *You kidnapped my wife!*
+
+**Ravana** - *Sorry Ram! The idiot scriptwriter asked me to. But see the positive....we are finally meeting in person....and not in Orkut!*
+
+**Ram** - *I hope she is ok....*
+
+**Ravana** - *Absolutely!*
+
+Orders servant to get Sita.
+
+**Ram** - *Tum ho kaise??*
+
+**Ravana** - *Sorry....Hindi nahi.*
+
+**Ram** - *I said how are you?*
+
+**Ravana** - *Great...but feeling bad.....to a tone my sins....I offer a free holiday for everyone, sponsored by the Lanka tourism board.*
+
+
+
+
+
+
 
 
 
