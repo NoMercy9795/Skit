@@ -3,6 +3,7 @@
 
 # Scene 1- 
 **Dashratha ka Ghar**: *Dashratha, the CEO of Ayodhya Pvt.Ltd. is looking into the mirror and singing a song-“Kyu Ajkal neend kam khwab jada hai” and Kaikayi is busy chatting with her friends on Whatsapp.*
+**Dashratha**- *Hey Babes! I am planning to retire and I am thinking to make Rama, the chief of Ayodhya Pvt.Ltd.*
 
 Rama and Laxmana walking together enter the scene.
 
