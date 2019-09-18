@@ -165,7 +165,7 @@ Main aapke saath Taxi mein chalunga. Taxi ka bhaada main doonga.
 
 **Ram** - *Laxman.....ab hum paar kaise karen?*
 
-**Laxman** - *Thoda intezaar karlo, har baat mei laxman laxman, kuch kaam khud bhi kar liya karo thakur *
+**Laxman** - *Thoda intezaar karlo, har baat mei laxman laxman, kuch kaam khud bhi kar liya karo thakur.*
 
 **Ram** - *Arre....woh kya? Ek Ship aa raha hai?*
 
