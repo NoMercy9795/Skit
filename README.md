@@ -61,34 +61,38 @@ Ravana enters in the avtar of a Sadhu.
 
 **Sita** - *Ohhhho, tab to aana padega snacks ka sawal hai!*
 
+Background song - "Dil wale dulhaniya le jayenge song"
+
 # Scene 4-
+
+Ram and Laxman walking together enter the scene
 
 **Ram** - *Radhe Radhe!*
 
-**Laxman** - *Abey short term, radha nhi sita *
+**Laxman** - *Abey short term, radha nhi sita*
 
-**Ram** - *radha kaun hai, duryodhan*
+**Ram** - *Sita kaun hai, duryodhan*
 
 **Laxman** - *Arey sita teri patni, mei duryodhan nhi laxman hun*
-              
-              *Aisa karoge to mei nhi khelunga*
 
+**Ram** - *Laxman teri bhabhi dikh nhi rahi , kahan gyi hogi??*
 
+**Laxman** - *Arey bhaiya, Big Bazaar mein 50% off...waheen shopping karne gayee hongi! Mobile mein call karke kyun nahin dekhte?*
 
+**Ram** - *Switch Off aa raha hai!!!*
 
+(spots her ornaments)
 
+**Ram** - *Ek minute! Ye to tumhare bhabhi ke hain!*
 
-**Kaikayi** - 
-Rama and Laxmana walking together enter the scene.e
-**Ram** - _radhe  radhe !!!_
+**Laxman** - *Aapko kaise pata ye bhabhi ke hain?*
 
-**Laxman** - Bhaiya radha nhi sita sita
+**Ram** - *Abbe yaar! Isi ka EMI bharte bharte to aaj main yahaan is haal mein aa gaya, lagta hai sita kissi muskil mei hai chalo usse khojte hai *
 
-**Ram** - Laxman teri bhabhi dikh nhi rahi , kahan gyi hogi??
+**Laxman** - *Paidal kahan tak jaoge, Uber kar lete hai.*
 
-**Laxman** - Arey bhaiya, Big Bazaar mein 50% off...waheen shopping karne gayee hongi! Mobile mein call karke kyun nahin dekhte?
+**Taxiwalla** - *Main har ghante wait karne ke 40 Rs charge karta hoon!*
 
-**Ram** - Switch Off aa raha hai!!!
 
 
 
