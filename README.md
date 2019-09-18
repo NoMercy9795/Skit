@@ -99,13 +99,13 @@ Ram and Laxman walking together enter the scene
 
 ### Getting down from taxi...
 
-**Garud** - *Tum Rama ho? Kya tum apni biwi ko dhoondh rahe ho?*
+**Garud** - *Tum Ram ho? Kya tum apni biwi ko dhoondh rahe ho?*
 
 **Ram** - *Haan magar aap....*
 
-**Garud** - *Tera baap!! jitna bolun bs utna sun.*
+**Garud** - *Tera baap!! jitna puchun bs utna bata.*
 
-**Ram** - *Sorry chacha!!!*
+**Ram** - *Sorry chaccha!!!*
 
 **Garud** - *Main us plane ka pilot hoon! Ab kambakht kalyug mein pet bharne ke liye mujhe ye bhi karna pada...
 Magar main to boodha garud hoon sahab! Kambakht Auto Pilot ka zamaana hai...Ravana ne mujhe dhakel diya aur plane ko le gaya!*
