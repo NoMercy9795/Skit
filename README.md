@@ -20,6 +20,22 @@
 
 Background song - "tadap tadap ke iss dil se aah nikalti rahi"
 
+**Ram and Dashratha talk**: *Ram tumhe jungle jana hoga.*
+
+**Ram** - *Hum jungle nhi jayenge, wachan do tum apni lugayi ko aur jungle jaye hamri lugayi, baap ho yaa jallad.*
+
+# Scene 2-
+# Jungle Scene.
+
+**Ram** - _kal se muh fula kr ku baitha hai bey_
+
+**Laxman** - _Apna to biwi ke saath jungle mei mangle kar rahe ho aur hun baithkr man vs wild dekte hai din bhar,
+dukhi naa ho to kaa kare naache._
+
+Suddenly Surpanakha enters - **song** - "Munni badnaam hui darling tere liye!" 
+
+**Surpanakha** - *Hey Dude! I like you. Do you have five minutes for me? Let’s go out for a coffee or something. What say?*
+
 
 
 
