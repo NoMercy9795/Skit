@@ -8,7 +8,7 @@
 
 *Kaikayi totally shocked!!!*
 
-**Kaikayi** - *Lagta hai sathiya gaya hai buddha*
+**Kaikayi** - *Lagta hai sathiya gaya hai buddha, glass hath se uthti nhi aur chikut ko GOA jana h.*
 
 **Dashratha**- *Kuch bola tumne dear!*
 
@@ -27,21 +27,42 @@ Background song - "tadap tadap ke iss dil se aah nikalti rahi"
 # Scene 2-
 ## Jungle Scene.
 
-**Ram** - _kal se muh fula kr ku baitha hai bey_
+**Ram** - _kal se muh fula kr ku baitha hai bey, ka dikkat hai_
 
-**Laxman** - _Apna to biwi ke saath jungle mei mangle kar rahe ho aur hun baithkr man vs wild dekte hai din bhar,
+**Laxman** - _Apna to biwi ke saath jungle mei mangle kar rahe ho aur hum baithe hai gomti ke kinare tinder ke sahare,
 dukhi naa ho to kaa kare naache._
 
 Suddenly Surpanakha enters - **song** - "Munni badnaam hui darling tere liye!" 
 
 **Surpanakha** - *Hey Dude! I like you. Do you have five minutes for me? Let’s go out for a coffee or something. What say?*
 
+**Surpanakha** - *waise bhi dekhne se jobless lagte ho, ku naa mujh jaisi hasina ke saath shaam hasin karo!*
+
+Laxman cutting nose of Surpanakha.
+
+**Ram** - *Abey! ye kya kiya gadhe, pehle baar koi hasina mili thi 2 days 3 night package wali.*
+
+**Laxman** - *Bahut sahi chacha, lugayi bhi tumhri aur hasina bhi. Hum to jungle mei mangira bajane aaye hai*
+
+# Scene 3-
+## Sita Apaharan.
+
+Ravana enters in the attire of a Sadhu.
+
+**Ravana** - Bhiksham Dehi! Burgur- pizza bhi chalega beti!!
+
+**Sita** - Dude! I can’t cross this line.
+
+**Ravana**- *Ayegi kaise nhi, Script mei likha hai*.
+
+
+
+
 
 
 
 **Kaikayi** - 
-Rama and Laxmana walking together enter the scene.
-
+Rama and Laxmana walking together enter the scene.e
 **Ram** - _radhe  radhe !!!_
 
 **Laxman** - Bhaiya radha nhi sita sita
