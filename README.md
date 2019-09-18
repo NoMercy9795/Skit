@@ -22,7 +22,7 @@ Background song - "tadap tadap ke iss dil se aah nikalti rahi"
 
 **Ram and Dashratha talk**: *Ram tumhe jungle jana hoga.*
 
-**Ram** - *Hum jungle nhi jayenge, wachan do tum apni lugayi ko aur jungle jaye hamri lugayi, baap ho yaa jallad.*
+**Ram** - *Hum jungle kahen jaye, wachan do tum apni lugayi ko aur jungle jaye hamri lugayi, baap ho yaa jallad.*
 
 # Scene 2-
 ## Jungle Scene.
