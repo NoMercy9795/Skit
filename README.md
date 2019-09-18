@@ -87,11 +87,18 @@ Ram and Laxman walking together enter the scene
 
 **Laxman** - *Aapko kaise pata ye bhabhi ke hain?*
 
-**Ram** - *Abbe yaar! Isi ka EMI bharte bharte to aaj main yahaan is haal mein aa gaya, lagta hai sita kissi muskil mei hai chalo usse khojte hai *
+**Ram** - *Abbe yaar! Isi ka EMI bharte bharte to aaj main yahaan is haal mein aa gaya, lagta hai sita kissi muskil mei hai chalo usse khojte hai.*
 
 **Laxman** - *Paidal kahan tak jaoge, Uber kar lete hai.*
 
 **Taxiwalla** - *Main har ghante wait karne ke 40 Rs charge karta hoon!*
+
+**Laxman** - *Abbe teri....dhakkan! Ullu ke paththe! Dimaag ghaas charne gaya hai? Baaki Taxi waale 50 Rs maangte hain....tu sirf 40 maang raha hai?*
+
+**Taxiwalla** - *Bhaiya wo petrol gadi h, meri to CNG h.*
+
+### Getting down from taxi...
+
 
 
 
