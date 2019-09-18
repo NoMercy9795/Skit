@@ -47,14 +47,31 @@ Laxman cutting nose of Surpanakha.
 # Scene 3-
 ## Sita Apaharan.
 
-Ravana enters in the attire of a Sadhu.
+Ravana enters in the avtar of a Sadhu.
 
 **Ravana** - Bhiksham Dehi! Burgur- pizza bhi chalega beti!!
 
 **Sita** - Dude! I can’t cross this line.
 
-**Ravana**- *Ayegi kaise nhi, Script mei likha hai*.
+**Ravana** - *Ayegi kaise nhi, Script mei likha hai*.
 
+**Sita** - *Script kya tere baap ne likhi hai.*
+
+**Ravana** - *Admin committee ne likhi hai.*
+
+**Sita** - *Ohhhho, tab to aana padega snacks ka sawal hai!*
+
+# Scene 4-
+
+**Ram** - *Radhe Radhe!*
+
+**Laxman** - *Abey short term, radha nhi sita *
+
+**Ram** - *radha kaun hai, duryodhan*
+
+**Laxman** - *Arey sita teri patni, mei duryodhan nhi laxman hun*
+              
+              *Aisa karoge to mei nhi khelunga*
 
 
 
