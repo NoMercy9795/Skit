@@ -161,7 +161,7 @@ Ram, main aapki madad karoonga.
 
 Main aapke saath Taxi mein chalunga. Taxi ka bhaada main doonga.
 
-### They all get in the taxi and move on! The reach the port of Kanyakumari.
+### They all get in the taxi and move on! They reach the port of Kanyakumari.
 
 **Ram** - *Laxman.....ab hum paar kaise karen?*
 
