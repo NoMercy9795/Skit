@@ -25,7 +25,7 @@ Background song - "tadap tadap ke iss dil se aah nikalti rahi"
 **Ram** - *Hum jungle nhi jayenge, wachan do tum apni lugayi ko aur jungle jaye hamri lugayi, baap ho yaa jallad.*
 
 # Scene 2-
-# Jungle Scene.
+## Jungle Scene.
 
 **Ram** - _kal se muh fula kr ku baitha hai bey_
 
