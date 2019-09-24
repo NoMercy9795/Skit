@@ -71,9 +71,9 @@ Ram and Laxman walking together enter the scene
 
 **Laxman** - *Abey short term, radha nhi sita*
 
-**Ram** - *Sita kaun hai, duryodhan*
+**Ram** - *Sita kaun hai, dashrath*
 
-**Laxman** - *Arey sita teri patni, mei duryodhan nhi laxman hun*
+**Laxman** - *Arey sita teri patni, aur dashrath tera baap*
 
 **Ram** - *Laxman teri bhabhi dikh nhi rahi , kahan gyi hogi??*
 
