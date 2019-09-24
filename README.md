@@ -8,7 +8,7 @@
 
 *Kaikayi totally shocked!!!*
 
-**Kaikayi** - *Lagta hai sathiya gaya hai buddha, glass hath se uthti nhi aur chikut ko GOA jana h.*
+**Kaikayi** - *jaisa tan dikh raha waise mann kijiye aisa waise naa koi jatan kijiye, tirth ke dor me goa jaate nhi ,ye umar hai bhajan kijiye.*
 
 **Dashratha**- *Kuch bola tumne dear!*
 
