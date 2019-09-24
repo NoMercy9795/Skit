@@ -40,7 +40,7 @@ Suddenly Surpanakha enters - **song** - "Munni badnaam hui darling tere liye!"
 
 Laxman cutting nose of Surpanakha.
 
-**Ram** - *Abey! ye kya kiya gadhe, pehle baar koi hasina mili thi 2 days 3 night package wali.*
+**Ram** - *Abey! ye kya kiya gadhe, pehle baar koi hasina mili thi.*
 
 **Laxman** - *Bahut sahi chacha, lugayi bhi tumhri aur hasina bhi. Hum to jungle mei mangira bajane aaye hai*
 
