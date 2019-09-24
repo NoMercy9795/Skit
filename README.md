@@ -53,7 +53,9 @@ Ravana enters in the avtar of a Sadhu.
 
 **Sita** - Dude! I can’t cross this line.
 
-**Ravana** - *Ayegi kaise nhi, Script mei likha hai*.
+**Ravana** - Seeta lo khao papita, hello jita jldi lao fly machine with ghoda chita. Sita mei sirf branded pita, that's why mast life jeeta
+
+**Sita** - *No ways!!!*
 
 **Sita** - *Script kya tere  ne likhi hai.*
 
