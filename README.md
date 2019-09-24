@@ -18,7 +18,7 @@
 
 **Kaikayi** - *Apne pehle lugayi ke bete ram ko jungle bhej aur hamre bete ko raja bana!*
 
-Background song - "tadap tadap ke iss dil se aah nikalti rahi"
+Background song - milan tune
 
 **Ram and Dashratha talk**: *Ram tumhe jungle jana hoga.*
 
@@ -36,7 +36,7 @@ Suddenly Surpanakha enters - **song** - "Munni badnaam hui darling tere liye!"
 
 **Surpanakha** - *Hey Dude! I like you. Do you have five minutes for me? Let’s go out for a coffee or something. What say?*
 
-**Surpanakha** - *waise bhi dekhne se jobless lagte ho, ku naa mujh jaisi hasina ke saath shaam hasin karo!*
+**Surpanakha** - *waise bhi dekhne se engineer lagte ho, khali hi hoge ghumne chale!*
 
 Laxman cutting nose of Surpanakha.
 
