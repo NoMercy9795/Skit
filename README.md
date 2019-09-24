@@ -91,57 +91,9 @@ Ram and Laxman walking together enter the scene
 
 **Laxman** - *Paidal kahan tak jaoge, Uber kar lete hai.*
 
-**Taxiwalla** - *Main har ghante wait karne ke 40 Rs charge karta hoon!*
-
-**Laxman** - *Abbe teri....dhakkan! Ullu ke paththe! Dimaag ghaas charne gaya hai? Baaki Taxi waale 50 Rs maangte hain....tu sirf 40 maang raha hai?*
-
-**Taxiwalla** - *Bhaiya wo petrol gadi h, meri to CNG h.*
-
-### Getting down from taxi...
-
-**Garud** - *Tum Ram ho? Kya tum apni biwi ko dhoondh rahe ho?*
-
-**Ram** - *Haan magar aap....*
-
-**Garud** - *Tera baap!! jitna puchun bs utna bata.*
-
-**Ram** - *Sorry chaccha!!!*
-
-**Garud** - *Main us plane ka pilot hoon! Ab kambakht kalyug mein pet bharne ke liye mujhe ye bhi karna pada...
-Magar main to boodha garud hoon sahab! Kambakht Auto Pilot ka zamaana hai...Ravana ne mujhe dhakel diya aur plane ko le gaya!*
-
-**Ram** - *Magar woh le kahaan gaya hai?*
-
-**Garuda** - *Sri Lanka....waheen par Ravana ka rajya hai.
-Aapki biwi ne aapke liye ye goggles bhi chhoda hai...*
-
-Ram sees it 'fastrack...haan ye bhi Seeta ke special goggles hain.
-
-**Ram** - *I mean...chaccha.....ye Ravana rehte kahaan hain?*
-
-**Garud** - *Don't worry, uska visiting card mere paas hai....*
-
-### gives visiting card...
-
-**Laxman** - *Bhaiyya, humein jald se jald nikalna chahiye....*
-
-**Ram** - *Magar inka kya karein?*
-
-**Garud** - *Meri chinta mat karo...main apni girlfriend ko phone kar doonga.*
-
-**Ram** - *Chaccha, tumhari girlfriend kahaan rehti hai?*
-
-**Garud** - *Woh Lake Pulicat mein chutti mana rahi hai*
-
-**Laxman** - *Oh...phir to bahut der ho jayegi....hum Menaka Gandhi ko phone kar dete hain! Zyada jaldi aa jayengi*
-
-**Ram** - *Laxmana....tum woh sab intezam karo...main Taxi Driver se wahaan tak jaane ka kiraya baat kar leta hoon.*
-
+utkarsh's scene- garud informs hanuman's location 
 ### They are driving in full speed...
 
-**Ram** - *Arre....ye kya.....bandar jaisa ek aadmi chala aa raha hai!*
-
-**Laxman** - *Gaur se dekho bhaiya, woh Andrew Symonds hai. Taxi wale bhaiyya! RUKO!*
 
 ### They get down.
 
