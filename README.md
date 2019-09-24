@@ -51,17 +51,15 @@ Ravana enters in the avtar of a Sadhu.
 
 **Ravana** - Bhiksham Dehi! Bhiksham Dehi!!
 
-**Sita** - Dude! I can’t cross this line.
+**Sita** - Ghar mei kuch khane ke liye nhi hai.
 
-**Ravana** - Seeta lo khao papita, hello jita jldi lao fly machine with ghoda chita. Sita mei sirf branded pita, that's why mast life jeeta
+**Ravana** - Swiggy, Zomato kuch bhi chalega!!
+
+**Sita** - Khud hi order kar le! Dude! I can’t cross this line.
+
+**Ravana** - Seeta lo khao papita, hello jita jldi lao fly machine with ghoda cheetah. Sita mei sirf branded pita, that's why mast life jeeta
 
 **Sita** - *No ways!!!*
-
-**Sita** - *Script kya tere  ne likhi hai.*
-
-**Ravana** - *Admin committee ne likhi hai.*
-
-**Sita** - *Ohhhho, tab to aana padega snacks ka sawal hai!*
 
 Background song - "Dil wale dulhaniya le jayenge song"
 
