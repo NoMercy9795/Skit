@@ -8,7 +8,7 @@
 
 *Kaikayi totally shocked!!!*
 
-**Kaikayi** - *jaisa tan dikh raha waise mann kijiye aisa waise naa koi jatan kijiye, tirth ke dor me goa jaate nhi ,ye umar hai bhajan kijiye.*
+**Kaikayi** - *jaisa tan dikh raha waise mann kijiye aisa waise naa koi jatan kijiye, tirth ke dor me goa jaate nhi ,ye umar hai bhajan ki bhajan  kijiye.*
 
 **Dashratha**- *Kuch bola tumne dear!*
 
