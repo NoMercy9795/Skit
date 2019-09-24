@@ -42,14 +42,14 @@ Laxman cutting nose of Surpanakha.
 
 **Ram** - *Abey! ye kya kiya gadhe, pehle baar koi hasina mili thi.*
 
-**Laxman** - *Bahut sahi chacha, lugayi bhi tumhri aur hasina bhi. Hum to jungle mei mangira bajane aaye hai*
+**Laxman** - *Bahut sahi chacha, lugayi bhi tumhri aur hasina bhi. Hum to jungle mei manjira bajane aaye hai*
 
 # Scene 3-
 ## Sita Apaharan.
 
 Ravana enters in the avtar of a Sadhu.
 
-**Ravana** - Bhiksham Dehi! Burgur- pizza bhi chalega beti!!
+**Ravana** - Bhiksham Dehi! Burgur yaa pizza bhi chalega beti!!
 
 **Sita** - Dude! I can’t cross this line.
 
