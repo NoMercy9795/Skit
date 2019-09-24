@@ -36,7 +36,7 @@ Suddenly Surpanakha enters - **song** - "Munni badnaam hui darling tere liye!"
 
 **Surpanakha** - *Hey Dude! I like you. Do you have five minutes for me? Let’s go out for a coffee or something. What say?*
 
-**Surpanakha** - *waise bhi dekhne se engineer lagte ho, khali hi hoge ghumne chale!*
+**Surpanakha** - *waise bhi dekhne se engineer lagte ho, khali hi hoge, ghumne chale!*
 
 Laxman cutting nose of Surpanakha.
 
@@ -49,13 +49,13 @@ Laxman cutting nose of Surpanakha.
 
 Ravana enters in the avtar of a Sadhu.
 
-**Ravana** - Bhiksham Dehi! Burgur yaa pizza bhi chalega beti!!
+**Ravana** - Bhiksham Dehi! Bhiksham Dehi!!
 
 **Sita** - Dude! I can’t cross this line.
 
 **Ravana** - *Ayegi kaise nhi, Script mei likha hai*.
 
-**Sita** - *Script kya tere baap ne likhi hai.*
+**Sita** - *Script kya tere  ne likhi hai.*
 
 **Ravana** - *Admin committee ne likhi hai.*
 
