@@ -43,12 +43,6 @@ Laxman cutting nose of Surpanakha.
 **Ram** - *Abey! ye kya kiya gadhe, pehle baar koi hasina mili thi.*
 
 **Laxman** - *Bahut sahi chacha, lugayi bhi tumhri aur hasina bhi. Hum to jungle mei manjira bajane aaye hai*
-## surpanakha and ravana conversation
-
-**Surpanakha** - *Bhaiya dekho laxman ne meri naak kaat di!*
-
-**Ravana** - *ek baat batao, jb tum kissi ka bhi roop le sakti,to bina makeup ke ye chehra lekar jane ki kya jarurat thi.*
-             *Such a waste of talent!!!!*
 
 # Scene 3-
 ## Sita Apaharan.
@@ -57,15 +51,15 @@ Ravana enters in the avtar of a Sadhu.
 
 **Ravana** - Bhiksham Dehi! Bhiksham Dehi!!
 
-**Sita** - Ghar mei kuch khane ke liye nhi hai.
+**Sita** - Ghar mei kuch khane ke liye nhi hai Baba.
 
 **Ravana** - Swiggy, Zomato kuch bhi chalega!!
 
-**Sita** - Khud hi order kar le! Dude! I can’t cross this line.
+**Sita** - Khud hi order kar lo Dude! I can’t cross this line. 
 
-**Ravana** - Seeta lo khao papita, hello jita jldi lao fly machine with ghoda cheetah. Sita mei sirf branded pita, that's why mast life jeeta
+**Ravana** - Seeta lo khao papita, hello jita jldi lao fly machine with ghoda cheetah. Sita mei sirf branded pita, that's why mast life jeeta. Chalogi ab ?
 
-**Sita** - *No ways!!!*
+**Sita** - Nhi :/
 
 Background song - "Dil wale dulhaniya le jayenge song"
 
