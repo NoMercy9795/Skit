@@ -137,6 +137,13 @@ Laxman cutting nose of Surpanakha.
 
 **Laxman** - *Bahut sahi chacha, lugayi bhi tumhri aur hasina bhi. Hum to jungle mei manjira bajane aaye hai*
 
+ ## surpanakha and ravana conversation
+
+**Surpanakha** - *Bhaiya dekho laxman ne meri naak kaat di!*
+
+**Ravana** - *ek baat batao, jb tum kissi ka bhi roop le sakti,to bina makeup ke ye chehra lekar jane ki kya jarurat thi.*
+             *Such a waste of talent!!!!*
+
 # Scene 3-
 ## Sita Apaharan.
 
