@@ -35,7 +35,7 @@ ki kar reya hai . Khoteya inhi raat nu kya jaga ta mainu.*
 **Dashratha**: *Ye dangar ta pehle hi nalaayak hai. Pura din phone che pubg mai vadeya rehna aa.
 Pant apni sambhalti nh ayodhya ka raj swahh smbhalna hai inhe.*
 
-**Bharat**: *Daddyyyy !!*
+**Bharat**: *Daddyyyy !!* 
 
 **Dashratha**: *Chup kar ja !! Gandi Aulaad na maja na sawaad.*
 
