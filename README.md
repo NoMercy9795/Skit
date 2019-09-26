@@ -48,9 +48,12 @@ Pant apni sambhalti nh ayodhya ka raj swahh smbhalna hai inhe.*
 **Dashratha**: *Kitho are ho inhi raat nu?*
 
 *In chorus says, vo daddy ....*
-**Ram**: *Mandir*
-**Sita**: *Bageecha*
-**Lakshman**: *Vairanda*
+
+- **Ram**: *Mandir*
+
+- **Sita**: *Bageecha*
+
+- **Lakshman**: *Vairanda*
 
 *nh nh..then they interchange each others answers.*
 
