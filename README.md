@@ -24,7 +24,7 @@
 **_Song plays: Aye Raja Raja Raja Kareja Me Samaja_**
 
 **Dashratha**: *dances sitting on the chair and wakes up and slaps Bharat for his mischief [slap sound in background]
-- ki kar reya hai . Khoteya inhi raat nu kya jaga ta mainu.*
+ki kar reya hai . Khoteya inhi raat nu kya jaga ta mainu.*
 
 **Kaikayi**: *vo mai twanu ik zaruri gal dasni c*
 
