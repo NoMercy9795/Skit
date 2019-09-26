@@ -141,8 +141,12 @@ Laxman cutting nose of Surpanakha.
 
 **Surpanakha** - *Bhaiya dekho laxman ne meri naak kaat di!*
 
-**Ravana** - *ek baat batao, jb tum kissi ka bhi roop le sakti,to bina makeup ke ye chehra lekar jane ki kya jarurat thi.*
-             *Such a waste of talent!!!!*
+**Ravana** - *ek baat batao, jb tum kissi ka bhi roop le sakti thi,to bina makeup ke ye chehra lekar jane ki kya jarurat thi.Such a waste of talent!!!!*
+
+**Surpanakha** - **_rone ki acting_**
+
+**Ravana** - *Roo mt behan, Mei tera badla lunga.*
+
 
 # Scene 3-
 ## Sita Apaharan.
@@ -194,13 +198,28 @@ Ram and Laxman walking together enter the scene
 utkarsh's scene- garud informs hanuman's location 
 ### They are driving in full speed...
 
-
 ### They get down.
 
-**Ram** - *Hi! Tumhara naam kya hai?*
 
-**Hanuman** - *Mera naam **Pandit Gangadhar Vidhyadhar Mayadhar Omkarnath Shastri** hai. Maine bahut paap kiya hain...Indian Cricket Team ke khilaaf. God ne mujhe punish kiya ke jab tak main aapki seva naa karoon.....tab tak main century nahin bana paaoonga.*
+**Ram** - *Mujhe lagta hai, yahi hanuman hai!*
 
+**Laxman** - *Bhaiya! dhyan se dekho iska chehra hanuman se kam andrew symonds se jyada milta hai!!! *
+
+**Ram** - *Hi,Tumhara naam kya hai?*
+
+**Hanuman** - *Mera naam Hanuman hai, log pyar se mujhe yo yo test kahte hai!!!*
+
+**Ram** - *Meri sita ko ravana lanka le gaya hai, usse dhundhna hai!!!*
+
+**Hanuman** - *Chota mota dhandha band kar diya maine, bali ka putar batha hai usse bhej do!!*
+
+**Laxman** - *Ammi Jaan kehti thi Koi Dhandha chotaa nahi hota Aur Dhandhe se bada koi Dharm nahi hota*
+
+
+
+
+
+<strike>
 Ram, main aapki madad karoonga.
 
 **Laxman** - *Good....ab Lanka tak udo aur vaapas aao.*
@@ -265,6 +284,7 @@ Orders servant to get Sita.
 
 **Ravana** - *Great...but feeling bad.....to a tone my sins....I offer a free holiday for everyone, sponsored by the Lanka tourism board.*
 
+</strike>
 
 
 
