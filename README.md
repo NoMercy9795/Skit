@@ -209,16 +209,35 @@ utkarsh's scene- garud informs hanuman's location
 
 **Hanuman** - *Mera naam Hanuman hai, log pyar se mujhe yo yo test kahte hai!!!*
 
-**Ram** - *Meri sita ko ravana lanka le gaya hai, usse dhundhna hai!!!*
+**Ram** - *Sita ko khojna hai, usse ravana uthakr le gaya hai, kuki uski behan mayawati ki naak kat di iss pagle ne .!!!*
 
-**Hanuman** - *Chota mota dhandha band kar diya maine, bali ka putar batha hai usse bhej do!!*
+**Laxman** - *Arey Bhaiya! Har behan Mayawati nhi* 
+
+**Hanuman** - *Dekho Bhai! Mei chota mota dhandha nhi krta, bali ka putar batha hai usse bhej do!!*
 
 **Laxman** - *Ammi Jaan kehti thi Koi Dhandha chotaa nahi hota Aur Dhandhe se bada koi Dharm nahi hota*
 
+**Hanuman** - *Thik hai chalo Lanka!!*
+
+# LANKA
 
 
+**Hanuman** - *Oye bhidu … ye lanka to vadi rapchik jageh hai yaar… ek dum chama cham*
+
+**Ram** - *Seriously man, its coooool !! Ravan baap bahut maal kamaya hai lagta hai.*
+
+**Laxman** - *Jao hanuman , Bhabhi ko khojo!!!*
+
+**Hanuman** - *Bhut Bhuk lagi hai bhaiya, kuch kha lun fir jaun!!!*
+
+**Laxman**: *kesari putra lo khao vimal, Dane Dane me kesar ka dun*.
 
 
+### The Judgement Day!!!
+
+**Fight with Song**
+
+[a link](https://www.youtube.com/watch?v=37hymrGVP0U)
 <strike>
 Ram, main aapki madad karoonga.
 
