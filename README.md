@@ -159,9 +159,9 @@ Ravana enters in the avtar of a Sadhu.
 
 **Ravana** - Seeta lo khao papita, hello jita jldi lao fly machine with ghoda cheetah. Sita mei sirf branded pita, that's why mast life jeeta. Chalogi ab ?
 
-**Sita** - Nhi :/
+**Sita** - Nhi, Mujhe ram ke liye chod do.
 
-Background song - "Dil wale dulhaniya le jayenge song"
+Background song - "Ravan song"
 
 # Scene 4-
 
