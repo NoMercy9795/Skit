@@ -237,7 +237,10 @@ utkarsh's scene- garud informs hanuman's location
 
 **Fight with Song**
 
-[Please use me ](https://www.youtube.com/watch?v=37hymrGVP0U){:target="_blank" rel="noopener"}
+[Please use me ](https://www.youtube.com/watch?v=37hymrGVP0U&t=480){:target="_blank" rel="noopener"}
+
+<a href="https://www.youtube.com/watch?v=37hymrGVP0U&t=480" target="_blank">Go</a>
+
 
 <strike>
 Ram, main aapki madad karoonga.
