@@ -14,7 +14,9 @@
 **Dashratha**: *Sleeping & snoring on the chair.*
 
 **Kaikayi**: *Tries to wake him up but he doesn't responds initially.*
+
 **_Dialogues: ajji sunte ho!!_**
+
 *When he doesn't responds , kaikayi says kithe eh chal te nh vasse..*
 
 **Bharat**: *arre nhi bebe !! ruko mainu pta hai daddy ji nu kiwe uthana aa. loud music pe inha da fav music chla ke.*
