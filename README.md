@@ -91,8 +91,8 @@ jo mushkil se chair milti hai vo bhi ye carrom board vale daba ke bhait jaate h.
 *chalo hun apni buthi (muh) leke tuur jao ethe.*
 
 
-Kabhi Khushi Kabhi gham sad song plays and scene ends.
-Dashratha turns his face away from them and they 3 pick their stuff and leave the house.
+**_Kabhi Khushi Kabhi gham sad song plays and scene ends.
+Dashratha turns his face away from them and they 3 pick their stuff and leave the house._**
 
 <strike>
 **Dashratha ka Ghar**: *Dashratha, the CEO of Ayodhya Pvt.Ltd. is looking into the mirror and singing a song-“Kyu Aajkal neend kam khwab jada hai” and Kaikayi is busy chatting with her friends on Whatsapp.* 
