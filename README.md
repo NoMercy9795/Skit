@@ -70,8 +70,7 @@ Dusshru ne 100rs di tshirt awai nh payi.*
 
 **_Ram,Lakshman, Sita [Laughing in background on this dialogue]_**
 
-**Dashratha**: *Hasde ki pye ho. *
-*Hum puttar ji teeno apna samaan pack krlo.*
+**Dashratha**: *Hasde ki pye ho.Hum puttar ji teeno apna samaan pack krlo.*
 
 **Lakshman**: *Daddy ji goa ja rhe h appa ?*
 
