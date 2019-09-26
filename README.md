@@ -213,7 +213,7 @@ utkarsh's scene- garud informs hanuman's location
 
 **Laxman** - *Arey Bhaiya! Har behan Mayawati nhi* 
 
-**Hanuman** - *Dekho Bhai! Mei chota mota dhandha nhi krta, bali ka putar batha hai usse bhej do!!*
+**Hanuman** - *Dekho Bhai! Mei chota mota dhandha nhi krta,uttar me baitha hai bali ka putar ,usse bhej do!!*
 
 **Laxman** - *Ammi Jaan kehti thi Koi Dhandha chotaa nahi hota Aur Dhandhe se bada koi Dharm nahi hota*
 
