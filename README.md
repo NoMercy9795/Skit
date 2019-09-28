@@ -219,6 +219,50 @@ utkarsh's scene- garud informs hanuman's location
 
 **Hanuman** - *Thik hai chalo Lanka!!*
 
+**Laxman** - *Hanuman !!! Hum teeno sath to hai par ye lanka tak kaise jaaye?*
+
+**Hanuman** - *Kick maro mei start ho jaunga, aur aapko lanka le jaunga*
+
+**Laxman** - *Kick kahan hai???*
+
+**Hanuman** - *Meri ponch ko teen baar ghumao*
+
+**_Says loudly jai sri ram and holds lakshman's hand tightly and starts dragging him._**
+
+**Laxman** - *Bhai kaan faadega kya. arre bhaiya par merko uchayi se darr lagta hai..
+bhaiyaa..bhaiyya  bhaiyaa...*
+
+**_Laskhman [Hanuman has lifted Laskhman and Lakshman is holding selfie stick in his hand] :
+Aur ye mai aasmaan ki uchaiyo mai. Chaaro taraf kohra hi kohra. Aur thode se mayuus developers.
+Bahut upar hai.. uhhhh ahhhhh_**
+
+**Hanuman** - *Bhai ye jo tu video bna raha hai muje bhi send krdio.*
+
+**Laxman** - *haan bhai. agar aj bach gye to pakka bhej dunga.
+After a pause and some scary reactions.*
+
+BHAI LAND KARAO.
+
+**Hanuman** - *Abhi kaha se Lakshman. Abhi to adha Indian ocean bhi paar nahi kara.*
+
+**Laxman** - *Bhai merko lambi ride nahi karni.*
+
+Hanuman tilts on both sides.
+
+**Laxman**: *Arre nahi nahi nahi
+Sidha karo... arre mummyyyy ...daaadaa reee*
+
+**Hanuman**: *Kya kar raha hai uche kar paon*
+
+**Laxman**: *bhai teri kasam uche kiye huye hai*
+
+**Hanuman**: *Arre bhai paon tut jayenge tere*
+
+**Laxman**: *Mai pagal hu jo iske sath aaya,bhai 100-200 zyada lele par land kara de muje*
+
+**_Narrator - Aur isi ke sath hanuman airlines land karte huye lanka..jaha ram bhi pahuch gye hote hai.
+Vahi dusri aur lanka mai ravan ki shadi ka function chal raha hai_**
+
 # LANKA
 
 
@@ -230,7 +274,7 @@ utkarsh's scene- garud informs hanuman's location
 
 **Hanuman** - *Bhut Bhuk lagi hai bhaiya, kuch kha lun fir jaun!!!*
 
-**Laxman**: *kesari putra lo khao vimal, Dane Dane me kesar ka dun*.
+**Laxman** - *kesari putra lo khao vimal, Dane Dane me kesar ka dun.*
 
 
 ### The Judgement Day!!!
