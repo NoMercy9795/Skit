@@ -76,13 +76,13 @@ Dusshru ne 100rs di tshirt awai nh payi.*
 
 **Dashratha**: *Hasde ki pye ho.Hum puttar ji teeno apna samaan pack krlo.*
 
-**Lakshman**: *Daddy ji goa ja rhe h appa ?*
+**Ram**: *Daddy ji goa ja rhe h appa ?*
 
 **Dashratha**: *Goa teh nh kaka ji par tussi teeno hun 14 saaal de lyi vnvaas ja rye ho.*
 
 [Kaikayi and Bharat do a High Five]
 
-**Lakshman**: *14 saal? inhe me to 2 baar MBBS hojati h.*
+**Ram**: *14 saal? inhe me to 2 baar MBBS hojati h.*
 
 **Dashratha**: *comes closer to Lakshman , puts his hand on lakshman's sholder and says
 Bete codelyser ki problem to solve hondi ni twaade kolo, mbbs swahh krni aa.*
