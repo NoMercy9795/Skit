@@ -244,21 +244,6 @@ After a pause and some scary reactions.*
 
 BHAI LAND KARAO.
 
-**Hanuman** - *Abhi kaha se Lakshman. Abhi to adha Indian ocean bhi paar nahi kara.*
-
-**Laxman** - *Bhai merko lambi ride nahi karni.*
-
-Hanuman tilts on both sides.
-
-**Laxman**: *Arre nahi nahi nahi
-Sidha karo... arre mummyyyy ...daaadaa reee*
-
-**Hanuman**: *Kya kar raha hai uche kar paon*
-
-**Laxman**: *bhai teri kasam uche kiye huye hai*
-
-**Hanuman**: *Arre bhai paon tut jayenge tere*
-
 **Laxman**: *Mai pagal hu jo iske sath aaya,bhai 100-200 zyada lele par land kara de muje*
 
 **_Narrator - Aur isi ke sath hanuman airlines land karte huye lanka..jaha ram bhi pahuch gye hote hai.
