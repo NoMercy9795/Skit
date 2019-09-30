@@ -3,7 +3,9 @@
 
 # Scene 1- 
 
-**Bharat**: *Bebe !! Mainu thode paise chye de ne, mainu bullet [pronounced as bullt] leni aa.*
+**Bharat** - *Bebe !! Mainu thode paise chye de ne,
+**Kaikayi** - *Ku??*
+**Bharat** - *mainu bullet [pronounced as bullt] leni aa te lena hai ik iphone te ek chakkar lagana kanneda da *
 
 **Kaikayi**:
 - *Waheguru !! ki karan mai is munde da.*
