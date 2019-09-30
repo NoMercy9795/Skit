@@ -7,9 +7,9 @@
 
 **Kaikayi** - *Ku??*
 
-**Bharat** - *mainu bullet [pronounced as bullt] leni aa te lena hai ik iphone te ek chakkar lagana kanneda da *
+**Bharat** - *mainu bullet [pronounced as bullt] leni aa te lena hai ik iphone te ek chakkar lagana kanneda da.*
 
-**Kaikayi**:
+**Kaikayi** -
 - *Waheguru !! ki karan mai is munde da.*
 - *Vakhriya hi demanda karda rehna hai.*
 - *Ehda hi chlda reya teh ram ne ban jana hai ayodhya ka agla raja or is khote ne bjana hai usi sabha mai baaja.*
