@@ -196,16 +196,12 @@ Ram and Laxman walking together enter the scene
 
 **Ram** - *Abbe yaar! Isi ka EMI bharte bharte to aaj main yahaan is haal mein aa gaya, lagta hai sita kissi muskil mei hai chalo usse khojte hai.*
 
-**Laxman** - *Paidal kahan tak jaoge, Uber kar lete hai.*
+**Laxman** - *hum unhe dhudhenge kahan?*
 
 **Jatayu** - *hey Ram!!! mei mata sita ko nhi bacha saka, unhe ravana haran kar lanka le gaya hai.
               Aap Dvapara Yuga ke flying jatt hanuman ke pass chale jao, wo aapko Lanka lekar jayenge*
              
-### They are driving in full speed...
-
-### They get down.
-
-
+### Hanuman , ram conversation
 **Ram** - *Mujhe lagta hai, yahi hanuman hai!*
 
 **Laxman** - *Bhaiya! dhyan se dekho iska chehra hanuman se kam andrew symonds se jyada milta hai!!! *
