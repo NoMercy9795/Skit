@@ -131,9 +131,7 @@ dukhi naa ho to kaa kare naache._
 
 Suddenly Surpanakha enters - **song** - "Munni badnaam hui darling tere liye!" 
 
-**Surpanakha** - *Hey Dude! I like you. Do you have five minutes for me? Let’s go out for a coffee or something. What say?*
-
-**Surpanakha** - *waise bhi dekhne se engineer lagte ho, khali hi hoge, ghumne chale!*
+**Surpanakha** - *Ji,kithe chale ho gobi da phul banke? Accolite k engineer hi lagte ho, velle hi hoge. I am really interested in you. Coffee pine chaloge?*
 
 Laxman cutting nose of Surpanakha.
 
@@ -165,7 +163,8 @@ Ravana enters in the avtar of a Sadhu.
 
 **Sita** - Khud hi order kar lo Dude! I can’t cross this line. 
 
-**Ravana** - Seeta lo khao papita, hello jita jldi lao fly machine with ghoda cheetah. Sita mei sirf branded pita, that's why mast life jeeta. Chalogi ab ?
+**Ravana** - Seeta lo khao papita, hello jita jldi lao fly machine with ghoda cheetah. 
+Sita mei sirf branded pita, that's why mast life jeeta. Chalogi ab ?
 
 **Sita** - Nhi, Mujhe ram ke liye chod do.
 
