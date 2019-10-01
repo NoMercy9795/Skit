@@ -249,18 +249,6 @@ BHAI LAND KARAO.
 **_Narrator - Aur isi ke sath hanuman airlines land karte huye lanka..jaha ram bhi pahuch gye hote hai.
 Vahi dusri aur lanka mai ravan ki shadi ka function chal raha hai_**
 
-# LANKA
-
-
-**Hanuman** - *Oye bhidu … ye lanka to vadi rapchik jageh hai yaar… ek dum chama cham*
-
-**Ram** - *Seriously man, its coooool !! Ravan baap bahut maal kamaya hai lagta hai.*
-
-**Laxman** - *Jao hanuman , Bhabhi ko khojo!!!*
-
-**Hanuman** - *Bhut Bhuk lagi hai bhaiya, kuch kha lun fir jaun!!!*
-
-**Laxman** - *kesari putra lo khao vimal, Dane Dane me kesar ka dun.*
 
 
 ### The Judgement Day!!!
