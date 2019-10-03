@@ -78,7 +78,7 @@ Dusshru ne 100rs di tshirt awai nh payi.*
 
 **Ram**: *Daddy ji goa ja rhe h appa ?*
 
-**Dashratha**: *Goa teh nh kaka ji par tussi teeno hun 14 saaal de lyi vnvaas ja rye ho.*
+**Dashratha**: *Goa teh nh kaka ji par tussi teeno hun 14 saaal de lyi ideara mei ja rye ho.*
 
 [Kaikayi and Bharat do a High Five]
 
