@@ -230,12 +230,10 @@ Ram and Laxman walking together enter the scene
 
 **_Says loudly jai sri ram and holds lakshman's hand tightly and starts dragging him._**
 
-**Laxman** - *Bhai kaan faadega kya. arre bhaiya par merko uchayi se darr lagta hai..
-bhaiyaa..bhaiyya  bhaiyaa...*
+**Laxman** - *Bhai kaan faadega kya. arre bhaiya par merko uchayi se darr lagta hai..bhaiyaa..bhaiyya  bhaiyaa...*
 
-**_Laskhman [Hanuman has lifted Laskhman and Lakshman is holding selfie stick in his hand] :
-Aur ye mai aasmaan ki uchaiyo mai. Chaaro taraf kohra hi kohra. Aur thode se mayuus developers.
-Bahut upar hai.. uhhhh ahhhhh_**
+**Laskhman** : Aur ye mai aasmaan ki uchaiyo mai. Chaaro taraf kohra hi kohra. Aur thode se mayuus developers.
+Bahut upar hai.. uhhhh ahhhhh*
 
 **Hanuman** - *Bhai ye jo tu video bna raha hai muje bhi send krdio.*
 
@@ -246,8 +244,6 @@ BHAI LAND KARAO.
 
 **Laxman**: *Mai pagal hu jo iske sath aaya,bhai 100-200 zyada lele par land kara de muje*
 
-**_Narrator - Aur isi ke sath hanuman airlines land karte huye lanka..jaha ram bhi pahuch gye hote hai.
-Vahi dusri aur lanka mai ravan ki shadi ka function chal raha hai_**
 
 
 
