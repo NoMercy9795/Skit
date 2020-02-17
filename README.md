@@ -35,24 +35,57 @@ tayyar hu.
 
 # Scene 2-
 
-**Dashratha**- *Hey Babes! Mei soch raha hun retirement leke GOA chale jaun aur ram ko CEO of Ayodhya Pvt.Ltd. bana dun.*
+   **Ram enters the scene – Azeemo shah shehnshah **
 
-*Kaikayi totally shocked!!!*
+Shivam enters with chair.
 
-**Kaikayi** - *jaisa tan dikh raha waise mann kijiye aisa waise naa koi jatan kijiye, tirth ke dor me goa jaate nhi ,ye umar hai bhajan ki bhajan  kijiye.*
+Then the crown.
 
-**Dashratha**- *Kuch bola tumne dear!*
+Dashrath enters, then Ram enters.
 
-**Kaikayi** - *mujhe apne dono wachan maangne hai jo tumne diye the.*
+Ram is in front of the throne and Dashrath is about to crown him (burger king).
 
-**Dashratha**- *han han bolo kya chaiye, waise bhi march mei hike hone wali hai, IphoneX order kr dun kya?*
+Cue music : ruko ruko ruko.
 
-**Kaikayi** - *Apne pehle lugayi ke bete ram ko jungle bhej do aur hamre bete ko raja bana do!*
+Everyone turns around thrice.
 
+Kaikeyi enters – Kaikeyi – komolika Music.
 
-**Ram and Dashratha talk**: *Ram tumhe jungle jana hoga.*
+**Dashrath** - Kya hua Biwi No. 3?
 
-**Ram** - *Hum jungle kahen jaye, wachan do tum apni lugayi ko aur jungle jaye hamri lugayi, baap ho yaa jallad.* 
+**Kaikeyi** – Ye rajyabhi.... Rajya bhi... oh whatever, ye crowning ceremony nahi ho sakti.You can’t be raja vaja and all.
+
+**Dashrath** – ae kaikeyi! Paglai gayi ho kaa? Subah subah kya bakloli kar rahi ho?
+
+**Kaikeyi** – oh puh lease! Shushes Dashrath. We need to talk.
+
+**Kaikeyi** – bhool gaye? Shadi ke contract wali terms and conditions?
+
+**Dashrath** - Kaunsi?
+
+**Kaikeyi** - Bhaiyaa??? (claps)
+
+Acc to this contract, Bharat shall be the king.
+**Dashrath (sees the contract)** – speaks fast- Mutual relationship investments are subject to
+future risk. Please read offer documents carefully before signing.
+
+**Dashrath** - Aur Ram ka kya??
+
+**Kaikeyi** - you can do whatever you want with that son of yours. Ek kaam karo, use vanvaas
+type kuch de do.
+
+**Dashrath to Kaikeyi** – humne tohar kya bigadat hai?
+
+**Kaikeyi** – Please Dashu, its not you, its me.
+(to Ram and Lakshman) - Chalo niklo.
+     
+   **Ram and Lakshman on side** –
+
+**Ram (to Lakshman)** – chal bhai! vachan de ye apni lugayi ko aur jungle jaye hamri lugayi.
+
+**Lakshman** – Tere baap ki teesri lugaai ne firse kalesh kar dio.
+
+**Sita** – Baby? Vahan steady wifi toh hoga na? I have client calls, everyday at 9:00pm.
 
 # Scene 3-
 ## Jungle Scene.
