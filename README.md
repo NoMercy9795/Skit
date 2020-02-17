@@ -3,22 +3,34 @@
 
 # Scene 1-
 **Janak** : baby, hamari baby bht badhi ho gayi hai. I think its time to get her own baby.
+
 **Sunayna** – haan babes, kitna time ho gaya hum chain se guftagoo bhi nahi kar paaye hai.
+
 **Janak** - Madam ke nakhre toh khatam hote nahi, ladka kahan se laayenge. Pehle bhi 5 launde
 pareshan ho kar bhaag gaye the.
+
 **Sunayna** - Mein aaj hi Jeevansaathi.com ki membership le leti hu.Koi na koi mil hi jaega.
+
 **Sita Entry** – Shanaya (start: 7 seconds to 23 seconds) (enters while swiping left on
-phone)
+phone).
+
 **Sita** – mom dad, Its friday night, mein ja rahi hu clubbing.
+
 **Janak and Sunaina** - Kyun?
+
 **Sita** - kyuki aapke toh bas k hi nahi hai mere liye koi dhundhna, ye poo ab khud hi dhundh legi.
 Sita starts rating guys. (and swiping them left in real life) tinder could be a real life person.
-Super like on Ram
-**Tinder** – OH MY GOD! It’s a match
-**Ram Entry** – Kukkad Kamal Da (start: 26 seconds)
+Super like on Ram.
+
+**Tinder** – OH MY GOD! It’s a match.
+
+**Ram Entry** – Kukkad Kamal Da (start: 26 seconds).
+
 **Sita** – OMG! Tumhe saiyaan banana ke liye toh mein yahan ke har ladke ko bhaiya banana ko
 tayyar hu.
-**Sita** - Lets go
+
+**Sita** - Lets go.
+
 **Ram** – to the audience: Thank god! Tinder Gold ka kuch toh fayda hua.
 
 # Scene 2-
