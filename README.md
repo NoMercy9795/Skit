@@ -35,7 +35,8 @@ tayyar hu.
 
 # Scene 2-
 
-**Ram enters the scene – Azeemo shah shehnshah **
+
+**Ram enters the scene – Azeemo shah shehnshah**
 
 Ram enters with chair.
 
