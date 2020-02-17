@@ -3,7 +3,6 @@
 
 # Scene 1- 
 
-<strike>
 **Dashratha ka Ghar**: *Dashratha, the CEO of Ayodhya Pvt.Ltd. is looking into the mirror and singing a song-“Kyu Aajkal neend kam khwab jada hai” and Kaikayi is busy chatting with her friends on Whatsapp.* 
 
 **Dashratha**- *Hey Babes! Mei soch raha hun retirement leke GOA chale jaun aur ram ko CEO of Ayodhya Pvt.Ltd. bana dun.*
@@ -24,7 +23,7 @@ Background song - milan tune
 
 **Ram and Dashratha talk**: *Ram tumhe jungle jana hoga.*
 
-**Ram** - *Hum jungle kahen jaye, wachan do tum apni lugayi ko aur jungle jaye hamri lugayi, baap ho yaa jallad.* </strike>
+**Ram** - *Hum jungle kahen jaye, wachan do tum apni lugayi ko aur jungle jaye hamri lugayi, baap ho yaa jallad.* 
 
 # Scene 2-
 ## Jungle Scene.
