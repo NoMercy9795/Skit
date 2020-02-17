@@ -35,9 +35,9 @@ tayyar hu.
 
 # Scene 2-
 
-   **Ram enters the scene – Azeemo shah shehnshah **
+**Ram enters the scene – Azeemo shah shehnshah **
 
-Shivam enters with chair.
+Ram enters with chair.
 
 Then the crown.
 
