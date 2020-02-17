@@ -1,9 +1,27 @@
 # Ramayana Skit
 * **Narrator** - Ram is short term memory loss patient.
 
-# Scene 1- 
+# Scene 1-
+**Janak** : baby, hamari baby bht badhi ho gayi hai. I think its time to get her own baby.
+**Sunayna** – haan babes, kitna time ho gaya hum chain se guftagoo bhi nahi kar paaye hai.
+**Janak** - Madam ke nakhre toh khatam hote nahi, ladka kahan se laayenge. Pehle bhi 5 launde
+pareshan ho kar bhaag gaye the.
+**Sunayna** - Mein aaj hi Jeevansaathi.com ki membership le leti hu.Koi na koi mil hi jaega.
+**Sita Entry** – Shanaya (start: 7 seconds to 23 seconds) (enters while swiping left on
+phone)
+**Sita** – mom dad, Its friday night, mein ja rahi hu clubbing.
+**Janak and Sunaina** - Kyun?
+**Sita** - kyuki aapke toh bas k hi nahi hai mere liye koi dhundhna, ye poo ab khud hi dhundh legi.
+Sita starts rating guys. (and swiping them left in real life) tinder could be a real life person.
+Super like on Ram
+**Tinder** – OH MY GOD! It’s a match
+**Ram Entry** – Kukkad Kamal Da (start: 26 seconds)
+**Sita** – OMG! Tumhe saiyaan banana ke liye toh mein yahan ke har ladke ko bhaiya banana ko
+tayyar hu.
+**Sita** - Lets go
+**Ram** – to the audience: Thank god! Tinder Gold ka kuch toh fayda hua.
 
-**Dashratha ka Ghar**: *Dashratha, the CEO of Ayodhya Pvt.Ltd. is looking into the mirror and singing a song-“Kyu Aajkal neend kam khwab jada hai” and Kaikayi is busy chatting with her friends on Whatsapp.* 
+# Scene 2-
 
 **Dashratha**- *Hey Babes! Mei soch raha hun retirement leke GOA chale jaun aur ram ko CEO of Ayodhya Pvt.Ltd. bana dun.*
 
@@ -15,17 +33,16 @@
 
 **Kaikayi** - *mujhe apne dono wachan maangne hai jo tumne diye the.*
 
-**Dashratha**- *han han bolo kya chaiye waise bhi amazon pe big billion day chal raha hai, Iphone x order kar dun*
+**Dashratha**- *han han bolo kya chaiye, waise bhi march mei hike hone wali hai, IphoneX order kr dun kya?*
 
-**Kaikayi** - *Apne pehle lugayi ke bete ram ko jungle bhej aur hamre bete ko raja bana!*
+**Kaikayi** - *Apne pehle lugayi ke bete ram ko jungle bhej do aur hamre bete ko raja bana do!*
 
-Background song - milan tune
 
 **Ram and Dashratha talk**: *Ram tumhe jungle jana hoga.*
 
 **Ram** - *Hum jungle kahen jaye, wachan do tum apni lugayi ko aur jungle jaye hamri lugayi, baap ho yaa jallad.* 
 
-# Scene 2-
+# Scene 3-
 ## Jungle Scene.
 
 **Ram** - _kal se muh fula kr ku baitha hai bey, ka dikkat hai_
@@ -35,7 +52,7 @@ dukhi naa ho to kaa kare naache._
 
 Suddenly Surpanakha enters - **song** - "Munni badnaam hui darling tere liye!" 
 
-**Surpanakha** - *Ji,kithe chale ho gobi da phul banke? Accolite k engineer hi lagte ho, velle hi hoge. I am really interested in you. Coffee pine chaloge?*
+**Surpanakha** - *Kaun hai jisne POO ko mudhkr nhi dekha?*
 
 Laxman cutting nose of Surpanakha.
 
