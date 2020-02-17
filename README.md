@@ -1,5 +1,4 @@
 # Ramayana Skit
-* **Narrator** - Ram is short term memory loss patient.
 
 # Scene 1-
 **Janak** : baby, hamari baby bht badhi ho gayi hai. I think its time to get her own baby.
@@ -88,7 +87,7 @@ type kuch de do.
 
 **Sita** – Baby? Vahan steady wifi toh hoga na? I have client calls, everyday at 9:00pm.
 
-# Scene 3-
+# Scene 4-
 ## Jungle Scene.
 
 **Ram** - _kal se muh fula kr ku baitha hai bey, ka dikkat hai_
@@ -119,7 +118,7 @@ Laxman cutting nose of Surpanakha.
 **Ravana** - *Roo mt behan, Mei tera badla lunga.*
 
 
-# Scene 3-
+# Scene 5-
 ## Sita Apaharan.
 
 Ravana enters in the avtar of a Sadhu.
@@ -139,21 +138,10 @@ Sita mei sirf branded pita, that's why mast life jeeta. Chalogi ab ?
 
 Background song - "Ravan song"
 
-# Scene 4-
+# Scene 6-
 
 Ram and Laxman walking together enter the scene
 
-**Ram** - *Radhe Radhe!*
-
-**Laxman** - *Abey short term, radha nhi sita*
-
-**Ram** - *Sita kaun hai, dashrath*
-
-**Laxman** - *Arey sita teri patni, aur dashrath tera baap*
-
-**Ram** - *Laxman teri bhabhi dikh nhi rahi , kahan gyi hogi??*
-
-**Laxman** - *Arey bhaiya, Big Bazaar mein 50% off...waheen shopping karne gayee hongi! Mobile mein call karke kyun nahin dekhte?*
 
 **Ram** - *Switch Off aa raha hai!!!*
 
@@ -215,7 +203,7 @@ BHAI LAND KARAO.
 
 
 
-
+<strike>
 ### The Judgement Day!!!
 
 **Fight with Song**
@@ -224,7 +212,7 @@ BHAI LAND KARAO.
 
 
 
-<strike>
+
 Ram, main aapki madad karoonga.
 
 **Laxman** - *Good....ab Lanka tak udo aur vaapas aao.*
