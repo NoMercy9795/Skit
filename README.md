@@ -66,6 +66,7 @@ Kaikeyi enters – Kaikeyi – komolika Music.
 **Kaikeyi** - Bhaiyaa??? (claps)
 
 Acc to this contract, Bharat shall be the king.
+
 **Dashrath (sees the contract)** – speaks fast- Mutual relationship investments are subject to
 future risk. Please read offer documents carefully before signing.
 
@@ -143,7 +144,11 @@ Background song - "Ravan song"
 Ram and Laxman walking together enter the scene
 
 
-**Ram** - *Switch Off aa raha hai!!!*
+**Ram** - *Sita Dikh nhi rhi hai laxman!!!*.
+
+**Laxman** - *Phone krke dekh lo Bhaiya!!!*.
+
+**Ram** - *Abey,Booster sahi se kaam karke tb to phone karun!!!*.
 
 (spots her ornaments)
 
