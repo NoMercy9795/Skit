@@ -66,6 +66,8 @@ Suddenly Surpanakha enters - **song** - "Munni badnaam hui darling tere liye!"
 
 **Surpanakha** - *Kaun hai jisne POO ko mudhkr nhi dekha?*
 
+Surpanakha goes towards Ram and tries to touch him.
+
 Laxman cutting nose of Surpanakha.
 
 **Ram** - *Abey! ye kya kiya gadhe, pehle baar koi hasina mili thi.*
