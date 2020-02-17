@@ -177,7 +177,7 @@ Ram and Laxman walking together enter the scene
 
 **Ram** - *Hi,Tumhara naam kya hai?*
 
-**Hanuman** - *Mera naam Hanuman hai, log pyar se mujhe yo yo test kahte hai!!!*
+**Hanuman** - *kehte hai mujhko jungle ki shaan is the, Mera naam hai hanuman is the!!*
 
 **Ram** - *Sita ko khojna hai, usse ravana uthakr le gaya hai, kuki uski behan mayawati ki naak kat di iss pagle ne .!!!*
 
