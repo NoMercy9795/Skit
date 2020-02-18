@@ -88,7 +88,7 @@ type kuch de do.
 
 **Sita** – Baby? Vahan steady wifi toh hoga na? I have client calls, everyday at 9:00pm.
 
-# Scene 4-
+# Scene 3-
 ## Jungle Scene.
 
 **Ram** - _kal se muh fula kr ku baitha hai bey, ka dikkat hai_
@@ -119,7 +119,7 @@ Laxman cutting nose of Surpanakha.
 **Ravana** - *Roo mt behan, Mei tera badla lunga.*
 
 
-# Scene 5-
+# Scene 4-
 ## Sita Apaharan.
 
 Ravana enters in the avtar of a Sadhu.
@@ -139,7 +139,7 @@ Sita mei sirf branded pita, that's why mast life jeeta. Chalogi ab ?
 
 Background song - "Ravan song"
 
-# Scene 6-
+# Scene 5-
 
 Ram and Laxman walking together enter the scene
 
