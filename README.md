@@ -122,20 +122,42 @@ Laxman cutting nose of Surpanakha.
 # Scene 4-
 ## Sita Apaharan.
 
+Ram , Lakshman, sita –
+
+Sita is on her phone
+
+A very hot girl (Manvi) enters and tries to impress Ram – Bebo mein bebo 0:41-0:5 plays in the
+background
+
+Ram goes after her
+
+**Sita** – fir se fisal gaya!
+
+**Lakshman** – aapke hote hue bhi bhaiya fisal gaye? Whatta player whatta player?
+
+**Sita** – (gives a tapli) Zyada udd mat, warna sprint ke saare jira tujhse karwaungi.
+
+**Lakshman** – theek hai. Mein aapke saiyyan ko abhi lekar aata hun. Aap is LOC ko cross mat karna.
+
 Ravana enters in the avtar of a Sadhu.
 
-**Ravana** - Bhiksham Dehi! Bhiksham Dehi!!
+   **Song – Nayak nahi khalnayak hu mein (17 seconds - 32 seconds)
+   
+**Sita** – Hi handsome. How can I help you?
 
-**Sita** - Ghar mei kuch khane ke liye nhi hai Baba.
+**Raavan** – Listen girl, I won’t play games here. Aaj Friday night hai, do you want to come, paas
+me hi ek naya club khula hai?
 
-**Ravana** - Swiggy, Zomato kuch bhi chalega!!
+**Sita** – and why would I go with you?
 
-**Sita** - Khud hi order kar lo Dude! I can’t cross this line. 
+**Raavan** - mere paas gaadi hai, bungalow hai, bank balance hai, sone ki lanka hai, bas ek
+couple entry ki zarurat hai. Drinks complimentary
 
-**Ravana** - Seeta lo khao papita, hello jita jldi lao fly machine with ghoda cheetah. 
-Sita mei sirf branded pita, that's why mast life jeeta. Chalogi ab ?
+**Sita** – Drinks??!!?? Then what are we waiting for? Christmas?
 
-**Sita** - Nhi, Mujhe ram ke liye chod do.
+**Raavan** – Tum mere liye is line ko cross kardogi?
+
+**Sita** – haan LOC hi toh hai. Vaise bhi har koi cross hi karta rehta hai.
 
 Background song - "Ravan song"
 
