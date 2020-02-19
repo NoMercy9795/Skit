@@ -112,6 +112,8 @@ Laxman cutting nose of Surpanakha.
 
 **Surpanakha** - *Bhaiya dekho laxman ne meri naak kaat di!*
 
+**SONG - https://www.youtube.com/watch?v=fl160THT36g&t=32s **
+
 **Ravana** - *ek baat batao, jb tum kissi ka bhi roop le sakti thi,to bina makeup ke ye chehra lekar jane ki kya jarurat thi.Such a waste of talent!!!!*
 
 **Surpanakha** - **_rone ki acting_**
