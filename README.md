@@ -232,17 +232,21 @@ BHAI LAND KARAO.
 
 
 
-<strike>
+
 ### The Judgement Day!!!
 
-**Fight with Song**
+**Laxman** -  *Sita mata ko wapas kar de, warna mera haath tera gaal !!!*
 
-[Please use me ](https://www.youtube.com/watch?v=37hymrGVP0U&t=480)
+**Ravan** - *Abey mere gaal tk to aaj tak sita nhi pahuncha, yehhhhh yehhhh sector 56 ka launda marega mujhe.*
+Ram, main aapki madad karoonga.*
 
+**Ram** - *Bhai ek kaam karte hai,compro kar lete hai!!!*
 
+**Ravan** - *Akhiri compro delhi office mei kiya tha, tabse tere bhai ne rapte barsaye hai!!! kya kiya hai , with "HAnuman" - BArsaye hai.*
 
+**Ram** - acha agr aesa hai to let's sort it out man to man (ram and ravan both take out there weapons, ravan - hanky, ram - sword)
 
-Ram, main aapki madad karoonga.
+**Ravan** - Bhai me nhi khel rha yaar, ye kuch jyada serious ho gya. 
 
 **Laxman** - *Good....ab Lanka tak udo aur vaapas aao.*
 
