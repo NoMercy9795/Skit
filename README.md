@@ -128,7 +128,7 @@ Ram , Lakshman, sita –
 
 Sita is on her phone
 
-A very hot girl (Manvi) enters and tries to impress Ram – Bebo mein bebo 0:41-0:5 plays in the
+A very hot girl enters and tries to impress Ram – Bebo mein bebo 0:41-0:5 plays in the
 background
 
 Ram goes after her
