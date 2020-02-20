@@ -70,6 +70,8 @@ Acc to this contract, Bharat shall be the king.
 **Dashrath (sees the contract)** – speaks fast- Mutual relationship investments are subject to
 future risk. Please read offer documents carefully before signing.
 
+**Kaikeyi** - ye nhi yeh!!!
+
 **Dashrath** - Aur Ram ka kya??
 
 **Kaikeyi** - you can do whatever you want with that son of yours. Ek kaam karo, use vanvaas
@@ -112,13 +114,13 @@ Laxman cutting nose of Surpanakha.
 
 **Surpanakha** - *Bhaiya dekho laxman ne meri naak kaat di!*
 
-**SONG - https://www.youtube.com/watch?v=fl160THT36g&t=32s ** have to play only for 5 minutes
+**SONG - https://www.youtube.com/watch?v=fl160THT36g&t=32s ** have to play only for 6 second
 
 **Ravana** - *ek baat batao, jb tum kissi ka bhi roop le sakti thi,to bina makeup ke ye chehra lekar jane ki kya jarurat thi.Such a waste of talent!!!!*
 
 **Surpanakha** - **_rone ki acting_**
 
-**Ravana** - *Roo mt behan, Mei tera badla lunga.*
+**Ravana** - *Tere aankh ka, tere naak ka, tere makeUP ka sabka badla lega rehhhhhh tera ravan!!!!.*
 
 
 # Scene 4-
@@ -143,7 +145,7 @@ Ram goes after her
 
 Ravana enters in the avtar of a Sadhu.
 
-   **Song – Nayak nahi khalnayak hu mein (17 seconds - 32 seconds)
+   **Song – vikram veda instrumental (1:01 - 1:09)
    
 **Sita** – Hi handsome. How can I help you?
 
@@ -152,16 +154,12 @@ me hi ek naya club khula hai?
 
 **Sita** – and why would I go with you?
 
-**Raavan** - mere paas gaadi hai, bungalow hai, bank balance hai, sone ki lanka hai, bas ek
+**Raavan** - mere pass persnol vayu yaan, bank balance hai, khud ka island hai or usme sone ki lanka hai, bas ek
 couple entry ki zarurat hai. Drinks complimentary
 
 **Sita** – Drinks??!!?? Then what are we waiting for? Christmas?
 
-**Raavan** – Tum mere liye is line ko cross kardogi?
-
-**Sita** – haan LOC hi toh hai. Vaise bhi har koi cross hi karta rehta hai.
-
-Background song - "Ravan song"
+**Background song - "Tu naa jaa re mere badsaah" 42sec to 50 sec.**
 
 # Scene 5-
 
@@ -172,7 +170,7 @@ Ram and Laxman walking together enter the scene
 
 **Laxman** - *Phone krke dekh lo Bhaiya!!!*.
 
-**Ram** - *Abey,Booster sahi se kaam karke tb to phone karun!!!*.
+**Ram** - *Abey,Booster sahi se kaam kare tb to phone karun!!!*.
 
 (spots her ornaments)
 
@@ -188,6 +186,9 @@ Ram and Laxman walking together enter the scene
               Aap Dvapara Yuga ke flying jatt hanuman ke pass chale jao, wo aapko Lanka lekar jayenge*
              
 ### Hanuman , ram conversation
+
+**Background song - "Dabangg song" **
+
 **Ram** - *Mujhe lagta hai, yahi hanuman hai!*
 
 **Laxman** - *Bhaiya! dhyan se dekho iska chehra hanuman se kam andrew symonds se jyada milta hai!!! *
@@ -216,19 +217,19 @@ Ram and Laxman walking together enter the scene
 
 **_Says loudly jai sri ram and holds lakshman's hand tightly and starts dragging him._**
 
-**Laxman** - *Bhai kaan faadega kya. arre bhaiya par merko uchayi se darr lagta hai..bhaiyaa..bhaiyya  bhaiyaa...*
+**Laxman** - * arre bhaiya par merko uchayi se darr lagta hai..bhaiyaa..bhaiyya  bhaiyaa...*
 
 **Laskhman** : Aur ye mai aasmaan ki uchaiyo mai. Chaaro taraf kohra hi kohra. Aur thode se mayuus developers.
 Bahut upar hai.. uhhhh ahhhhh*
 
 **Hanuman** - *Bhai ye jo tu video bna raha hai muje bhi send krdio.*
 
-**Laxman** - *haan bhai. agar aj bach gye to pakka bhej dunga.
+**Laxman** - *haan bhai. agar aaj bach gye to pakka bhej dunga.
 After a pause and some scary reactions.*
 
-BHAI LAND KARAO.
+Bs bhai bs mujhe yhi utar do, me swimming karte hue aa jaunga .
 
-**Laxman**: *Mai pagal hu jo iske sath aaya,bhai 100-200 zyada lele par land kara de muje*
+**Laxman**: *Mai pagal hu jo iske sath aaya,bhai 100-200 zyada lele par niche utar de muje*
 
 
 
